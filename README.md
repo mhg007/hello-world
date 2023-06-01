@@ -1,3 +1,4 @@
+Believe in yourself, but more than that believe in GOD
 # hello-world
 just another repository
 Roger That
